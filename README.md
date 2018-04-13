@@ -24,9 +24,7 @@ now your project ready:
 
 create new account and login and enjoy....!!! 3D facebook 
 
-username : shayan
-password : shayan
-if any problem and any query then call me 7600898210
+if any problem and any query then mail me:  shayanbanerjee96@gmail.com
 Enjoy...!!
 
 
